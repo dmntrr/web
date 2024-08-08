@@ -2,8 +2,11 @@
 this is some sort of web page thats meant to tell you what i can do. 
 
 i can do html and i am learning C++ i guess
+
 im not too bad at cod black ops 2, gta 5 and fifa or whatever its called now i guess
+
 i can do wordpress websites ok i guess
+
 i have an email address that you can contact me on
 
 :: demente.d@crustyft.org ::

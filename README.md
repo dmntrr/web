@@ -10,10 +10,12 @@ i have an email address that you can contact me on
 
 > [!NOTE]
 > my contact email can be used for the following: enquiries and an alternative to discord chat.
+>
 > (discord: demente.d)
 
 > [!CAUTION]
 > do NOT sign me up for weird shit like pornhub cos thats weird BUT ig i'll get your ip so thats ok
+>
 > also dont scam me because i will also get your ip and thats ok
 
 Goodbye then i guess
